@@ -1,3 +1,2 @@
-Hi, I'm Dade (aka TupalupaGit)
-I do random shit and don't even know how this works
-Add me on discord or something Dade#9999
+Hi, I'm Selene (aka Dade or Tupalupa)
+I'm bad at coding, @tupalupa on discord!
